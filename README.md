@@ -1,10 +1,4 @@
-- 👋 Hi, I’m @thinkabteuni
-- 👀 I’m interested in ... 
-- 🌱 I’m currently learning ... 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-thinkabteuni/thinkabteuni is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+❛　eunice — she/her
+⠀⠀11–LOUIS VUITTON
+⠀⠀♡⃕ student, STEM!
+  ayu, eun, or wtv
